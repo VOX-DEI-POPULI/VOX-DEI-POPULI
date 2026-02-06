@@ -13,4 +13,4 @@ Fav animal: Sharks.
 Bisexual and Bigender, strictly He/She or Vox.
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.
 Taken by Lulu/Alli! <3 
-SIGN ATA I NEED MESSAGES.(hate messages will be deleted)
+SIGN ATA I NEED MESSAGES. (hate messages will be deleted)
