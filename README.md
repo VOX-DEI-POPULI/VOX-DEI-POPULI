@@ -6,7 +6,7 @@ TRUST US!
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 Read strawpage/pronouns page for more info on dni and general info.
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
- Zodiac is Veigo, Mbti: ENTJ-T.
+ Zodiac is Virgo, Mbti: ENTJ-T.
 
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔. 
 Fav animal: Sharks. 
