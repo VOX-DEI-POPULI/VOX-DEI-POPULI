@@ -12,7 +12,7 @@ Read strawpage/pronouns page for more info on dni and general info.
 Fav animal: Sharks/Tigers. 
 Bisexual and Bigender, strictly He/She or Vox.
 .𖥔 ݁ ˖ ϟ ⚡︎ ϟ ˖ ݁ 𖥔.
-Taken by Lulu/Alli! <3 
+Single.
 SIGN ATA I NEED MESSAGES. (hate messages will be deleted)
 
 
